@@ -1,1 +1,0 @@
-# WebDesign-Lab1-Jennymae-G.-Sanupao
